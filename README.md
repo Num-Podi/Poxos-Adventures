@@ -1,3 +1,3 @@
 # Poxos-Adventures
-Olá mundo
+Olá mundo mágico das bolinhas
 heh ^~^
